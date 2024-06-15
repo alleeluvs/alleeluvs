@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alleeluvs
-- 👀 I’m interested in ganes
+- 👀 I’m interested in games
 - 🌱 I’m currently learning java
 - 📫 How to reach me alleeluvs on snapchat 
 - 😄 Pronouns: she/her
